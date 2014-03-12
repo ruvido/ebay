@@ -20,8 +20,8 @@ Viel Spaß beim Bieten!
 
 Privatverkauf - keine Rücknahme - kein Umtausch
 
-![](http://ruvido.github.io/ebay/img/iphone4weiss4-1.jpeg)
-![](http://ruvido.github.io/ebay/img/iphone4weiss4-2.jpeg)
-![](http://ruvido.github.io/ebay/img/iphone4weiss4-3.jpeg)
-![](http://ruvido.github.io/ebay/img/iphone4weiss4-4.jpeg)
-![](http://ruvido.github.io/ebay/img/iphone4weiss4-5.jpeg)
+![](http://ruvido.github.io/ebay/img/iphone4weiss-1.jpeg)
+![](http://ruvido.github.io/ebay/img/iphone4weiss-2.jpeg)
+![](http://ruvido.github.io/ebay/img/iphone4weiss-3.jpeg)
+![](http://ruvido.github.io/ebay/img/iphone4weiss-4.jpeg)
+![](http://ruvido.github.io/ebay/img/iphone4weiss-5.jpeg)
